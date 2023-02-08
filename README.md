@@ -1,0 +1,2 @@
+# zazuli
+Hidup untuk mati
